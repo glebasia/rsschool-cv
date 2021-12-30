@@ -1,1 +1,1 @@
-# rsschool-cv
+https://glebasia.github.io/rsschool-cv/cv
