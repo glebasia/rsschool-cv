@@ -89,3 +89,6 @@ In 2019, I graduated from the A.F. Mozhaisky Military Space Academy. For two yea
 * June 2019 - graduation from the Space-Military academy and obtaining higher engineering education
 * May 2020 - professional retraining diploma for a sports coach
 * December 2021 - advanced training for an interrogator
+
+## English 
+English-A2.I can read English well, but I speak poorly. Now I am improving my level of knowledge of the English language
